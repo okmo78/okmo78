@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @okmo78
-- 👀 I’m interested in anything
+- 👀 I’m interested in myself
 - 🌱 I’m currently learning Blender and programming and ...
 - 💞️ I’m looking to collaborate on Programming
 - 📫 just talk with me :D
